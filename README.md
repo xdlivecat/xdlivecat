@@ -5,4 +5,6 @@ i have too much money
 
 🏳️‍⚧️🇭🇷
 
+[she/her](https://hi.xdliverblx.live)
+
 if the croatian flag doesnt show up blame windows
